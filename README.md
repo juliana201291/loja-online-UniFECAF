@@ -2,6 +2,6 @@
 
 ## Contato
 Duvidas: contato@loja.com.br
-Contato Tel: 11 1234-5678
+Contato Tel: 11 0000-0000
 
 
